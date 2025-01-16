@@ -1,2 +1,2 @@
 # Comments
-My comments can choose what I add to the website
+I will add to my website anything that is commented on my videos
